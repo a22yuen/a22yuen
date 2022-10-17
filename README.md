@@ -9,6 +9,7 @@ Currently seeking Summer 2023 internship opportunities. Please don't hesitate to
 Fun facts:
 - I built an igloo in my backyard and slept in it (I'd do it again)
 - I made a bull whip out of tape and rope
+- My birth date is on the 22nd, making my waterloo username very fitting 🥳
 - I love to chat, message me about my opinion on anything and if I don't have one yet I'll come up with one!
 
 <!--
